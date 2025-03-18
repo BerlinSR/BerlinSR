@@ -30,7 +30,7 @@
 ---
 
 ## 📫 Contact Me
-- ✉️ berlinsena5@email.com  
+- ✉️ berlinsena5@gmail.com  
 
 
 ---
